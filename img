@@ -1,1 +1,1 @@
-<!-- Uploading "ChatGPT Image 25 de mai. de 2025, 08_40_55.png"... -->
+![Image](https://github.com/user-attachments/assets/4f86ea86-0aab-4f5a-b80b-d238f72fed79)
